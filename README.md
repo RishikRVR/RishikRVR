@@ -2,7 +2,7 @@
 I'm Rali Venkata Ram Rishik Or RishikRVR In Short
 
 ## Note:
-Don't Waste Your Time Browsing Through My Repositories As Most Of My Important Repositories Are Private.
+Don't Waste Your Time Browsing Through My Repositories As Most Of My Important Repositories Are Private. (Currently I Have 23 Total Repositories, I Guess This Will Help You Count My Private Repositories.)
 
 ## What I Do:
 I'm A Student Pursuing My B.Tech At Lendi Institute Of Engineering And Technology Loacted In My Hometown Vizianagaram.
